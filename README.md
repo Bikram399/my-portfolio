@@ -9,4 +9,3 @@
 
 💙 Follow me! to see more like this. 
 
-![preview img](/preview.png)
